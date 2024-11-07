@@ -1,2 +1,0 @@
-# anilemredurak.github.io
-portfolio
